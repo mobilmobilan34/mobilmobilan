@@ -1,0 +1,2 @@
+# mobilmobilan
+tilmiidun jadiid
